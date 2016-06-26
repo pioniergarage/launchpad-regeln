@@ -25,7 +25,12 @@ Status: Work-in-Progress. Bei Verbesserungsvorschlägen, Fragen oder Problemen g
 10) Du sollst nicht begehren deines Nächsten Weib, Co-Founder, Mitstreiter, Büro noch alles, was dein nächster hat. Wir sind eine Gemeinschaft und hindern uns nicht, sondern helfen uns gegenseitig.
 
 ## Weitere Regeln
+* Use your brain. Use common sense. Use good manners.
+* Wir bitten dich um eine Spende von 1€ in die Kaffeekasse pro Person pro Besuch. Ob du Kaffee trinkst oder nicht spielt dabei keine Rolle.
 * Telefoniert wird im Gemeinschaftsbereich oder draußen.
+* Gespräche sind im Meeting-Raum oder im Gemeinschaftsbereich zu führen.
+* Sei ein Phantom - hinterlasse keine Spuren.
+* Köpfhörer sagen dir: "Bitte nicht stören". Ein Schild mit der selben Aufschrift übrigens auch.
 * Fundsachen gibt es für eine 5€-Spende zurück.
 * Die Schlüsselkaution beträgt 50€.
 * Ab 22 Uhr ist im Außenbereich auf Ruhe zu achten.
